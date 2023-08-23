@@ -18,6 +18,147 @@
 |                                                              |                                          | p.82-84 | 4.13 LDAによるクラスタリング                                 |
 | [4.3.0_visualize_setup.ipynb](./4.3.0_visualize_setup.ipynb) | 4.3 可視化                               | p.86    | パッケージ・フォントのダウンロード                           |
 | [4.3.1_word_cloud.ipynb](./4.3.1_word_cloud.ipynb)           | 4.3.1 ワードクラウド                     | p.86-87 | 4.14 analyze_wordcloud.py                                    |
-| [4.3.2_co-occurrence_network.ipynb](./4.3.2_co-occurrence_network.ipynb) | 4.3.2 共起ネットワーク                   | p.89-91 | 4.15 analyze_cooccurrence.py                                 |
+| [4                                                 hghhhhghghhhhhhhhhhhhhhhhhhhhhhhhhh
+       vc cv c  
+       b  n.3.2_co-occurrence_network.ipynb](./4.3.2_co-occurrence_network.ipynb) | 4.3.2 共起ネットワーク                   | p.89-91 | 4.15 analyze_cooccurrence.py                                 |
 
 
+hhhh hfgt fhgt ghbtf hbgt hgbt hgb
+gtf bbnhfg bfhgt bhvfgv bhgvfb  
+g nbvghy                                          bnh bngh njh,jhm njh nm,
+bvgh nhhj76u87y78u
+tyhnyghtyghtghytghtgh
+t5ttrtrtr 
+gvb 
+
+bvhtyv
+vttttttt
+ 
+ 
+ bv ghvbhgn bvhn bn
+ gttgytrtuyt65r678tjn7ynbgfdserftgyhujioligmyjnfvefsfwgrbtnjkm9yhgteef
+ v vbngh ugjytfrdeswaqｄｔれ
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ bnhgtbhgtbhgtnjhbjｇｋｈ
+ｈｇｖンｆｖｂｈｆ4比9ｔｖンｇｆｂｖ７ｋｂｃンｆ７ｃｍｊｆｃｆｇんｂ７
+絵　
